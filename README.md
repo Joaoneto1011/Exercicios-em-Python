@@ -33,5 +33,5 @@ Criado por João Neto. Entre em contato!
 Telefone: (34)99683-2626
 
 - [GitHub](https://github.com/Joaoneto1011)
-- [LinkedIn](https://www.linkedin.com/in/joaoneto1011/)
+- [LinkedIn](https://www.linkedin.com/in/joao-rodrigues-neto-855757293/)
 - Email: neto31510@email.com
